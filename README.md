@@ -1,4 +1,4 @@
-# Imagine Dragons – Take Me to the Beach (feat. Ado)
+# Imagine Dragons – Take Me To The Beach（feat. Ado）
 
 > **歌詞登録ステータス：同期歌詞あり**
 
